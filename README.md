@@ -1,6 +1,6 @@
 # Case Study: Coca-Cola’s Strategic Use of Social Media Insights
 
-![coca-cola-zdhicqpwnd6wthl7](https://github.com/user-attachments/assets/14519e78-e5a1-4ff5-b938-cdaca58817f8)
+![coca-cola-zdhicqpwnd6wthl7](https://github.com/user-attachments/assets/14519e78-e5a1-4ff5-b938-cdaca58817f8) width="350" height="600
 
 
 ## Background

@@ -43,5 +43,5 @@ Coca-Cola's strategic use of social media insights showcases how data-driven dec
 ---
 
 **Author:** Akash Singh  
-**LinkedIn:** [linkedin.com/in/akashsingh9](https://linkedin.com/in/akashsingh9)  
-**Email:** singhakash9210@gmail.com
+**LinkedIn:** (https://www.linkedin.com/in/akash-singh-979745147) 
+**Email:** akash.singh@georgebrown.ca

@@ -1,6 +1,7 @@
 # Case Study: Coca-Cola’s Strategic Use of Social Media Insights
 
-<img src="https://github.com/user-attachments/assets/14519e78-e5a1-4ff5-b938-cdaca58817f8" width="350" height="600 />
+![coca-cola-zdhicqpwnd6wthl7](https://github.com/user-attachments/assets/5d2aad64-8157-41bb-a750-5eb3f80b5f22)
+
 
 ## Background
 Coca-Cola, a globally renowned beverage brand, continuously adapts its marketing strategies to remain relevant in an ever-evolving digital landscape. Despite its market dominance, the challenge of engaging a diverse global audience through social media remained significant.
